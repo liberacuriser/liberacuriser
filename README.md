@@ -1,0 +1,6 @@
+- 👋 Hi, Please allow me to introduce myself, I’m a man of wealth and taste. 
+- 👀 I've been around for a long, long year stole many of man's soul and faith.
+- 🌱 I was around when Jesus Christ had his moment of doubt and pain. Made damn sure that Pilate washed his faith and sealed his faith!
+- 💞️ Pleased to meet you, hope you guess my name! But what's puzzling you is the nature of my game.
+- 📫 Just as every cop is the criminal and all the sinners saints. As heads is tails, just call me Lucifer, cause I'm in need of some restraint!
+- ✨ So if you meet me, have some courtesy, some sympathy, and some taste. Use all your well-learned politesse or I'll lay your soul to waste!
